@@ -1,0 +1,5 @@
+- 👋 OI, EU SOU [@josegraper](url)
+- 👀 Eu tenho interesse em treinar Muay Thay, e jogos de de rpg e modo história (meu favorito é **skyrim**)
+- 🌱 Eu estou me focando em estudar ingles
+- 💻 Tenho um basico conhecimento em computação
+- 📔 E ultimamente penso em ser psicologo 
